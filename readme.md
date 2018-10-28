@@ -1,6 +1,3 @@
----
-
----
 
 ![](http://p20tr36iw.bkt.clouddn.com/animal-17545_640.jpg)
 
